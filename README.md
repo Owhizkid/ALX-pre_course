@@ -1,2 +1,2 @@
 My first readme
-All thanks to tutor God's Time
+All thanks to My amazing tutors
